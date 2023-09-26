@@ -1,1 +1,1 @@
-VK: @daddyzento
+VK/TG: @daddyzento
